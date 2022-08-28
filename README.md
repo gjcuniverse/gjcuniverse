@@ -21,7 +21,7 @@ https://www.pinterest.com/gjcuniverse
 
 https://tokopedia.link/gakjelascrew
 
-Carousell.com/u/gjcuniverse
+https://Carousell.com/u/gjcuniverse
 
 https://lummoshop.com/gjcshop
 
@@ -29,7 +29,7 @@ https://instagram.com/theupgradez
 
 https://toko.ly/gjcoffeekopibotolandepok
 
-twitter.com/gjcuniverse
+https://twitter.com/gjcuniverse
 
 https://instagram.com/gjc_shop
 
