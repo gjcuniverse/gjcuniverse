@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gjcuniverse
 Hey, I’m GJC. I’m a small business owner living in Indonesia
-
+https://opensea.io/gjcuniverse_nft
 https://www.facebook.com/gjcuniverse/
 
 https://gjcuniverse.tumblr.com/
